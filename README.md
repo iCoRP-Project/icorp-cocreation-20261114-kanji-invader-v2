@@ -1,0 +1,1 @@
+# icorp-cocreation-20261114-kanji-invader-v2
